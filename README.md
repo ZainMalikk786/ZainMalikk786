@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ZainMalikk786
 - 👀 I’m interested in Everything
 - 🌱 I’m currently learning....
-- 📫 How to reach me zainalimalik7676@gmail.com
+- 📫 How to reach me z...@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: the fun fact😃
 
